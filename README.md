@@ -1,2 +1,0 @@
-# A ROCHA HEMLOCK SURVEY FALL 2024
-Survey of Hemlock Tree Species @ A ROCHA CEDAR HAVEN
